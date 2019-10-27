@@ -1,0 +1,1 @@
+# fiqryq.github.io
